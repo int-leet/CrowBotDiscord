@@ -12,3 +12,5 @@ Je mettrai `à jour` ce Repo souvent et ajouterai des mises à jour.
 ## Me contacter
 
 ﹒[Serveur Discord](https://discord.gg/ZyeRMgXdEx)
+
+BlackRaven Cry :'(
